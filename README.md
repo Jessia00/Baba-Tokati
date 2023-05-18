@@ -14,3 +14,4 @@ v14 bot diye paylaşmışlar sonra bot ücreti falan sen git daha şu ozinin kal
 
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1108728578293628978/jsdjsjdjsjdjsjdsjd.png)
 
+crane cartel ve ertuyla sorunum yoktur aynı ekipte oldukları için ssi koydum
