@@ -8,7 +8,7 @@ grupta cevap veremiyordun şimdi gelmiş 2ci grup açınca sırf sese gelmedim d
 sen git guardına 1000 tane log açtır sonra guardları kurup test ettirmekten kaç en iyisi benim de
 
 ArviS Sen Kimsin bilmiyorum ama kardeşim varlığından haberim yok sürpriz yumurtadan çıkar gibi çıkıp sallayıp atıp tutuyorsun
-size karşılık vermiyorum çünki ben boş işleri saldım 
+size karşılık vermiyorum çünki ben boş işlerle uğraşmıyorum
 
 v14 bot diye paylaşmışlar sonra bot ücreti falan sen git daha şu ozinin kalıntılarını da temizle öyle konuşalım canlarım
 
